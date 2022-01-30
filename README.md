@@ -1,0 +1,4 @@
+- 👋 Hi, I’m alexankinm
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning Python
+- 📫 How to reach me: Discord- alexankinm#0001
