@@ -1,5 +1,5 @@
 ### Hi there 👋, my name is Maksym
-Discord - Esty88#5009
+Discord - Esty88#5009            
 Telegram - @AlexanMaks
 
 - 🌱 I’m currently learning Python 
