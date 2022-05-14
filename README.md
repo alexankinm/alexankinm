@@ -1,4 +1,4 @@
-### Hi there 👋, my name is Maksym
+### Hi there 👋 My name is Maksym
 Discord - Esty88#5009            
 Telegram - @AlexanMaks
 
