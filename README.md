@@ -2,7 +2,7 @@
 Discord - Esty88#5009            
 Telegram - @AlexanMaks
 
-- 🌱 I’m currently learning Python 
+- 🌱 I’m currently learning python and javascript
 - 😄 Pronouns: He/him 
 
 
